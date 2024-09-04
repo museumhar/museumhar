@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @museumstudent 
 - 👀 I’m interested in museum websites
-- 🌱 I’m currently learning museum studies
+- 🌱 I’m currently leaarning museum studies
 - 💞️ I’m looking to collaborate on museum websites
 - 📫 How to reach me my email or whatsapp
 - 😄 Pronouns: ...
